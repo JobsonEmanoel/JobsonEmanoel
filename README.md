@@ -1,7 +1,7 @@
 ### Olá eu sou Jobson Emanoel
 
 
-- 🔭 Programação Front-end/Full-stack
+- 🔭 Programação 📚
 - 🌱 Frameworks React
 - 📫 Contato: xxjobsonxx@gmail.com/(83)98887-9013)
 
