@@ -3,8 +3,7 @@
 
 - 🔭 Programação Front-end/Full-stack
 - 🌱 Frameworks React
-- 📫 Contato: xxjobsonxx@gmail.com
-- 😄 Pronouns: Ele
+- 📫 Contato: xxjobsonxx@gmail.com/(83)98887-9013)
 
 
 ### Olá eu sou Jobson Emanoel 👨🏽‍💻 📚
