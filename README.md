@@ -3,7 +3,7 @@
 
 - 🔭 Programação 📚
 - 🌱 Frameworks React
-- 📫 Contato: xxjobsonxx@gmail.com/(83)98887-9013)
+- 📫 Contato: zzeuszz@hotmail.com/(83)98887-9013)
 
 
 ### Olá eu sou Jobson Emanoel 👨🏽‍💻 📚
